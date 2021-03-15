@@ -20,7 +20,7 @@ My brother-in-law, a dev in the US, recommended this course. I want to learn web
 I want to make *great products*. However, I am afraid that companies in Vietnam would make me *overwork* and give me *low salary*.
 
 ## Favorite quote
-> The definition of power is not financial success, status, or influence over others, but the defree to which we have control over our own lives.
+> The definition of power is not financial success, status, or influence over others, but the degree to which we have control over our own lives.
 
 ## My favorite music
 I am watching *Attack on Titan* so I have been listening to its opening music repeatedly.  
