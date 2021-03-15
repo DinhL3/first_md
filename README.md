@@ -24,5 +24,5 @@ I want to make *great products*. However, I am afraid that companies in Vietnam 
 
 ## My favorite music
 I am watching *Attack on Titan* so I have been listening to its opening music repeatedly.  
-Attack on Titan all Openings 1-6(https://www.youtube.com/watch?v=MZFYVhW3Y-I&t=314s)  
+[Attack on Titan all Openings 1-6](https://www.youtube.com/watch?v=MZFYVhW3Y-I&t=314s)  
 
